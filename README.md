@@ -1,14 +1,12 @@
 <p align="center">
-mal ᵒᵘ bo. autistic 20yro I LOVE ELRUBIUS!
+mal ᵒᵘ bo. autistic 20yro 
+
+<p align="center">
+  <img src="https://i.postimg.cc/XYKS3Xjb/me.gif" />
 </p>
-
-(＾＾＃)	my dyslexia makes word processing messy sometimes, sorry if i misread you. i have psychosis so i'm super serious about f/o's and kins :p #1 **arthur kirkland** yume. i'm serious!!! **tom cruise** and **malcolm wilkerson** irl. i have a lot more kins and [interests](https://rentry.co/usuk-), go check that out if you wanna. right now i'm mostly into *stranger things*, mk1, *big time rush*, and **malcolm in the middle**. i love mitm so much talk to me about it now
-
-**byi** i'm a loser fujo yaoi addicted pervert. YOU'VE BEEN WARNED!
-
-i love hetalia and qsmp byebye
+Please talk to me about Pokemon or qsmp .
 </p>
-
+<img src="https://i.postimg.cc/XqgHmBKr/dni.png"width="300">
 
 ![stamp72](https://github.com/user-attachments/assets/eec3e0a1-53f5-43b2-8f27-7ef2742e9652)
 ![usuk](https://github.com/user-attachments/assets/b54e8949-b361-48a1-a85a-f37b9c772b71)
